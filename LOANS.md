@@ -22,3 +22,7 @@
 ## Originators
 * [Bondora](https://bondora.com/ref/vladimirl12)
 * [Omaraha](https://omaraha.ee)
+
+## Real Estate
+* [Brickowner](https://brickowner.com)
+* [EstateGuru](https://estateguru.co/en/investor-referral/?switch=en&userPromotionCode=EGU52297)
